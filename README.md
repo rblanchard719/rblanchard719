@@ -1,5 +1,6 @@
 
 ![githubnew](https://user-images.githubusercontent.com/64104511/168525651-3f2b78fa-a4f8-46a7-a30d-615c9cf8407b.png)
+![TECHSTACK](https://user-images.githubusercontent.com/64104511/168618801-4d39fbf6-60eb-4196-a2cb-5c2ef83984b0.png)
 
 Click on the photos below to view my favorite projects! 
 
